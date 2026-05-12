@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with advanced NFT Mint Bot for nft trading bot | real-time-monitoring & multi-chain-support. Featuring real-time-monitoring and
 
 
 
